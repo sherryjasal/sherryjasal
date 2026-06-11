@@ -24,7 +24,7 @@ Less toy projects. More engineering discipline.
 🤝 **[B2B AI Consultancy](https://www.thenextconsultants.in/#contact-us)** — Helping teams integrate AI into real business workflows.
 
 
-📧 Open to collaborations with startups, brands, and teams building with AI → thesherrycode26@gmail.com
+📧 Open to collaborations with startups, brands, and teams building with AI → [Let's connect](https://www.thenextconsultants.in/#contact-us)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
